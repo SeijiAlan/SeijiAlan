@@ -12,4 +12,4 @@ Tecnologias que uso no meu dia-a-dia:
 
 ✅Mais sobre mim:
 
-Ex-Farmacêutico em transição de carreira para a área de TI. Apaixonado por tecnologia e inovação, acompanho a evolução tecnológica que o mundo vem passando desde os anos 2000, gosto de aprender coisas novas e de compartilhar conhecimento !
+Ex-Farmacêutico em transição de carreira para a área de TI. Apaixonado por tecnologia e inovação, acompanho a evolução tecnológica desde os anos 2000. Tenho grande interesse em aprender novas ferramentas e compartilhar conhecimento, buscando constantemente crescimento e aprimoramento profissional.
